@@ -16,8 +16,8 @@ Then he wiggled his tail, and he turned right about.
 
 Mama sat on the carpet and gave him a stare,<br>
 "If you eat all your snacks, you must show them you care!<br>
-If you don't brush your teeth, they will start being sad,<br>
-Thinking of all of the treats that you've had!"
+Your teeth will get **sleepy**, they'll start feeling glum,<br>
+And then they will cry for the brushing to come!"
 
 Lucas rolled his big eyes with a sigh and a pout,<br>
 "It takes long two minutes!" he tried to shout out.<br>
