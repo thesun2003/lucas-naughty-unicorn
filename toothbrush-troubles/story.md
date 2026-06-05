@@ -20,22 +20,22 @@ Mama Unicorn called, with a soft, gentle sigh,<br>
 "Lucas, come brush them, down low and up high!"
 
 But Lucas just giggled and shook his pink mane,<br>
-"I'm tired!" he declared, and he shouted again,<br>
-"No scrubbing, no foaming, no paste on my **mouth**!<br>
+"Not bedtime!" he declared, and he shouted again,<br>
+"No scrubbing, no foaming, no paste on my **mouth**!"<br>
 Then he wiggled his tail, and he turned right about.
 
-He crawled into his castle made out of a sheet,<br>
+He crawled to his castle made out of a sheet,<br>
 And hid from his Mama his four little feet.<br>
 He tucked in his tail, and he closed his eyes tight,<br>
 Trying to hide from the stars in the night.
 
 Mama sat on the carpet and gave him a stare,<br>
-"If you eat all your snacks, you must show them you care!<br>
+"If you eat all your snacks, you must treat your teeth fair!<br>
 Your teeth will get **sleepy**, they'll start feeling glum,<br>
 And then they will cry for the brushing to come!"
 
 Lucas rolled his big eyes with a sigh and a pout,<br>
-"It takes long two minutes!" he tried to shout out.<br>
+"Those long two minutes!" he tried to shout out.<br>
 But Mama stayed quiet, just waiting for him,<br>
 To rescue his poor teeth, before they got dim.
 
@@ -47,7 +47,7 @@ To wash all the sugar-bugs quickly away."
 He stamped his small hoof and then threw up his chin,<br>
 "**Fine!**" Lucas declared, "Let the cleaning begin!"<br>
 He opened his mouth wide, like a cave for the brush,<br>
-And let Mama clean them, with a swish and no rush.
+And helped Mama clean them, with a swish and no rush.
 
 The bubbles were foamy, the mint was so cool,<br>
 Like a soft winter rain in a peppermint pool.<br>
@@ -57,4 +57,4 @@ The cleanest unicorn in all of the land!
 He watched in the mirror as the sparkles did gleam,<br>
 His teeth were now shining, the best he had seen!<br>
 He finished the brushing with a satisfied smile,<br>
-And knew his sweet teeth were all happy awhile!
+And knew his sweet teeth were all happy for a while!
